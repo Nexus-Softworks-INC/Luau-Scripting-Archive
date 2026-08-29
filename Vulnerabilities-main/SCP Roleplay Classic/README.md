@@ -1,0 +1,1 @@
+## Games like this steal players from actual well made games that deserve players, and not some free model chatgpt slop, owned by money hungry developers, who dont even care about their own fanbase but rather money.
